@@ -192,7 +192,7 @@ Video Link:
 
 https://youtu.be/lh02viyqlh4
 
-10 min one: (I ranted for too long but it is technically more in depth so I figured it was worth inclusion.
+10 min one: (I ranted for too long but it is technically more in depth so I figured it was worth inclusion.)
 
 https://youtu.be/MCf-Ovq9IuY
 
